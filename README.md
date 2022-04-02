@@ -9,4 +9,4 @@ O conteúdo trará:
 - **Principais diferenças** 
 - **Exemplos**
 
-![](C:\Users\sucap\Desktop\gif.gif)
+![](https://c.tenor.com/cKf7FeLja6cAAAAM/cant-wait-excited.gif)
